@@ -1,1 +1,1 @@
-# DisPromt by Miku Music Team LLC
+# DisPromt™️ by Miku Music Team LLC
